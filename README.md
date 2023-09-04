@@ -1,6 +1,6 @@
 # Hi! I'm Moch!
-Discord: Moch#3108
+Discord: mochzx
 <br>
-Discord Server: discord.gg/xGX78gD3M8
+Discord Server: discord.gg/x58mAVqnbY
 <br>
 .NET & JS 🔥
